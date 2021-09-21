@@ -17,7 +17,10 @@ Me gusta mucho jugar a fútbol y verlo pero no me he podido apuntar a jugar en u
 
 Jugar a videojuegos también es una de mis aficiones y suelo jugar a Fortnite, Valorant, Fifa, etc.
 
-Lo que suelo hacer mucho es escuchar música de todo tipo pero principalmente trap argentino.
+Lo que suelo hacer mucho es escuchar música de todo tipo pero principalmente [trap argentino](https://www.youtube.com/watch?v=7UVPGEmotoM). 
 
-Siempre que hay competiciones de freestyle internacionales o nacionales de españa e argentina las veo porque me gusta mucho.
+El orden de los artistas que suelo escuchar es 
+
+Siempre que hay competiciones de [freestyle internacionales](https://www.redbull.com/car-es/event-series/red-bull-batalla) o nacionales de españa e argentina las veo porque me gusta mucho.
 ![URL syntax](Lit_killah_california.jpg)
+
