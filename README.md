@@ -19,5 +19,5 @@ Jugar a videojuegos también es una de mis aficiones y suelo jugar a Fortnite, V
 
 Lo que suelo hacer mucho es escuchar música de todo tipo pero principalmente trap argentino.
 
-Siempre que hay competiciones de freestyle internacionales o nacionales de españa e argentina las veo porque me gusta mucho.
+Siempre que hay competiciones de freestyle internacionales o nacionales de españa e argentina las veo.
 ![URL syntax](Lit_killah_california.jpg)
